@@ -1,4 +1,4 @@
-### HI THERE! <3 👋 *
+#### HI THERE! <3 👋 
 
 ✨ I'm salmaa! , a passionate learner diving into the world of coding! 🚀
 
