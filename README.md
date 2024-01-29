@@ -20,6 +20,4 @@
 - 📧 Email: salmaanural18@gmail.com
 - 🐦 Twitter: slmanralph8
 
-### Open to Learning and Collaboration
-
-I would love to connect with fellow learners and developers! If you have any tips, resources, or would like to collaborate on a project, feel free to reach out. Let's learn and grow together! 😊✨
+### Let's learn and grow together! 🙌✨
